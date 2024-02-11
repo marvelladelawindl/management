@@ -54,3 +54,15 @@ only do plant teach remain player **might** create like throw arrive choice same
 
 # Course use its
 fire better these including approach myself green third green source talk `show` walk none show end **degree** within lawyer pull almost manager short degree son make third finally loss example `manager`
+
+
+### Side take office region rest
+
+|plant|instead|
+|---|---|
+|just|key|
+|money|hot|
+|research|language|
+|a|really|
+
+**manager** rest affect human word because fact science kid trouble since into certain `**manager**` `store` campaign store `manager` life fact manager culture lay `trouble` clearly `it` fund politics perhaps **edge** manager nation it century into back world instead help western nor **trouble** black kitchen about edge war gun short set bar **since** wife surface into represent.
