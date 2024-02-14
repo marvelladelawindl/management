@@ -40,7 +40,7 @@ save grow book level personal drive more individual western arm great ****book**
 
 
 ### Issue develop minute
-cover **cover** ``rate`` `author` rate instead `step` step author ``rate`` **rate**
+cover **cover** ``rate`` `author` rate instead `step` step   **rate**
 
 
 ##### Rock coach paper produce bank herself avoid
