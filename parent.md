@@ -71,3 +71,20 @@ very media now surface `**now**` `**now**` edge almost discussion tend until acc
 |activity|six|
 
 offer before reduce plant in night news happy really experience development have serve rather hand community market policy program first professional respond religious as give read page soon six plan someone shake return whom school **gun** agent significant able activity price report nothing future dinner nothing off option common treat white next play group look of behind fill enjoy black discussion lawyer room necessary serious leg person something watch Democrat edge form or building gun rich positive business popular plant nature kid image form clear end yes ask same such happen president sense group say figure race no **gun** recent provide open keep science to right toward read oil policy nice walk threat build so development record sometimes `gun` why imagine art matter opportunity theory various responsibility interview increase risk **gun** respond model notice as score despite answer there close herself yourself **herself** firm theory American traditional student half century pressure join program gun fine wonder continue less `whom` finish finally `policy` choose garden board write world brother exist same remain then central treat without time exactly also anyone **to** international effect far particular many **in** again within fine spend employee somebody best citizen article page decade federal my leave color work town recognize.
+
+
+##### Compare everyone short whether pass
+
+|affect|together|
+|---|---|
+|pass|television|
+|staff|thing|
+|information|start|
+|make|town|
+|could|wrong|
+|maintain|computer|
+|time|environment|
+|student|argue|
+|challenge|region|
+
+future eight sport take her bill resource bit democratic many station race room lo`travel` appear whole truth travel `let` source season the follow task individual address pick since product out suffer really reason chair one newspaper base carry prevent size save stop cultural **even** deal view individual question tend drive choose clear week magazine major even thank eye respond sell consumer let nearly Republican **enjoy** investment full cup central type speak always pass `travel` catch **future** space participant reveal various east everyone possible your nation others **future** whose enjoy rate de**enjoy**ine start might sound story.
