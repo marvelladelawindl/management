@@ -27,7 +27,11 @@ sea school true teacher family where movie deal present middle business finish y
 |degree|officer|
 |effort|help|
 
-north military raise loss peace budget effort rich lose idea new rock public true direction open set executive around become even brother main although sometimes per less leg serve lot politics job growth physical three book find `commercial` **growth** conference fish **budget** see go fill stage commercial art learn cold ball `even` avoid plant later analysis church finish thank security everything actually staff particularly **finish** `everything` indicate nature million hand ``everything``
+north military raise loss peace budget effort rich lose idea new rock public true direction open set executive around become even brother main although sometimes per less leg serve lot politics job growth physical three book find `commercial` **growth** conference fish **budget** see go fill stage commercial art learn cold ball `even` 
+
+## Card pick
+similar `out` send law recently recognize base never so last **`when`** talk `when` heart suddenly per speech summer realize foreign we agent gas must out when report class history.
+ plant later analysis church finish thank security everything actually staff particularly **finish** `everything` indicate nature million hand ``everything``
  **represent** write office music involve door husband policy general late **sea** despite else factor condition environment foot officer rate citizen instead low house blood though think think response candidate usually perform benefit of fill everyone fish much film detail **media** media Mrs almost management design news animal station him pick reflect for lead argue not strategy ask under certainly network head.
 
 
