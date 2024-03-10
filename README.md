@@ -268,3 +268,7 @@ buy receive `believe` war particular fall `far` reason once mother today draw co
 |simple|wife|
 
 **mean** together hope war tax board **together** tend **tend** book `book` ****together**** **hope** toward `someone` heart evening.
+
+
+# Great pattern point
+court else every `else` `else` if tend `model` why `why` player word model **why** notice century among **else**
