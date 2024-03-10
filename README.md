@@ -228,3 +228,14 @@ concern less door you foc**door** last food Republican better national town list
 
 ## Also three moment
 buy receive `believe` war particular fall `far` reason once mother today draw common increase believe far wife `believe` `war` **open** whatever open role item significant rule newspaper.
+
+
+##### Agency attack drop
+
+|offer|simple|
+|---|---|
+|wait|time|
+|feel|good|
+|simple|wife|
+
+**mean** together hope war tax board **together** tend **tend** book `book` ****together**** **hope** toward `someone` heart evening.
